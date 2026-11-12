@@ -17,4 +17,4 @@
 
 > "Don't be sick."
 
-[ )https://www.youtube.com/watch?v=uNAYTrZiTmc) 
+[Watch the trailer](https://www.youtube.com/watch?v=uNAYTrZiTmc) 
